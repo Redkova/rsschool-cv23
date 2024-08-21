@@ -1,1 +1,1 @@
-# rsschool-cv23
+https://GITHUB-redkova.github.io/rsschool-cv/cv
